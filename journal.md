@@ -9,3 +9,6 @@ VR is changing the way we play video games,VR stands for virtual reality
 # december 9, 2024
 what brain rot means to me is something that rots your brain
 I think it is possible to balance meaningful engagement with technology while avoiding brain rot
+# january 8, 2025
+What I enjoyed about last year was what i got for christmas
+what I look foward to is keeping my good grades and getting an iphone
