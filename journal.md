@@ -12,3 +12,5 @@ I think it is possible to balance meaningful engagement with technology while av
 # january 8, 2025
 What I enjoyed about last year was what i got for christmas
 what I look foward to is keeping my good grades and getting an iphone
+# january 13, 2025
+Yes I do think AI tools will enhance opportunities
