@@ -14,3 +14,5 @@ What I enjoyed about last year was what i got for christmas
 what I look foward to is keeping my good grades and getting an iphone
 # january 13, 2025
 Yes I do think AI tools will enhance opportunities
+# january 22, 2025
+They should address security concerns by alerting athority figures when tiktok is used inappropreitly
