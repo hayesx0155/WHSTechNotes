@@ -16,3 +16,5 @@ what I look foward to is keeping my good grades and getting an iphone
 Yes I do think AI tools will enhance opportunities
 # january 22, 2025
 They should address security concerns by alerting athority figures when tiktok is used inappropreitly
+# january 27, 2025
+Bart, he didn't work on the sierra, nor did he leave the oil cap off
