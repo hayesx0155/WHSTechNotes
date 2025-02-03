@@ -18,3 +18,5 @@ Yes I do think AI tools will enhance opportunities
 They should address security concerns by alerting athority figures when tiktok is used inappropreitly
 # january 27, 2025
 Bart, he didn't work on the sierra, nor did he leave the oil cap off
+# february 3, 2025
+improvments should include defense mechanics and better electriciry
