@@ -20,3 +20,5 @@ They should address security concerns by alerting athority figures when tiktok i
 Bart, he didn't work on the sierra, nor did he leave the oil cap off
 # february 3, 2025
 improvments should include defense mechanics and better electriciry
+# february 11, 2025
+My application would include my pros and skills
