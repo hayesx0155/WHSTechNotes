@@ -22,3 +22,5 @@ Bart, he didn't work on the sierra, nor did he leave the oil cap off
 improvments should include defense mechanics and better electriciry
 # february 11, 2025
 My application would include my pros and skills
+# february 18, 2025
+I learned that once i get my new phone i may have to give up my ipad and i don't want that
