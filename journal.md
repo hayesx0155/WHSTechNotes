@@ -26,3 +26,7 @@ My application would include my pros and skills
 I learned that once i get my new phone i may have to give up my ipad and i don't want that
 # february 24
 Thanks to computer-driven translation, AI, and advanced classroom tools, we stand to put every student on a path to success with the English language and beyond.
+# march 3, 2025
+Name:Zaros
+Power:Transform into a big black strong muscular momster called black hulk
+Challenge: defeat Zaros
