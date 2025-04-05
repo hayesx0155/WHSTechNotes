@@ -30,3 +30,5 @@ Thanks to computer-driven translation, AI, and advanced classroom tools, we stan
 Name:Zaros
 Power:Transform into a big black strong muscular momster called black hulk
 Challenge: defeat Zaros
+# april 24
+they impact our health and body
