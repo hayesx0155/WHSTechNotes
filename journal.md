@@ -24,7 +24,7 @@ improvments should include defense mechanics and better electriciry
 My application would include my pros and skills
 # february 18, 2025
 I learned that once i get my new phone i may have to give up my ipad and i don't want that
-# february 24
+# february 24, 2025
 Thanks to computer-driven translation, AI, and advanced classroom tools, we stand to put every student on a path to success with the English language and beyond.
 # march 3, 2025
 Name:Zaros
