@@ -30,5 +30,7 @@ Thanks to computer-driven translation, AI, and advanced classroom tools, we stan
 Name:Zaros
 Power:Transform into a big black strong muscular momster called black hulk
 Challenge: defeat Zaros
+# march 31, 2025
+My goal for the school year in to pass the staar test
 # april 24, 2025
 they impact our health and body
