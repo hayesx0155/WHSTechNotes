@@ -34,3 +34,5 @@ Challenge: defeat Zaros
 My goal for the school year in to pass the staar test
 # april 24, 2025
 they impact our health and body
+# april 7, 2025
+That's a school I want to see for myself. I think Ai will provide helpful tools for the staar test
