@@ -36,3 +36,11 @@ My goal for the school year in to pass the staar test
 they impact our health and body
 # april 7, 2025
 That's a school I want to see for myself. I think Ai will provide helpful tools for the staar test
+# april 14, 2025
+I believe it isn't benificial
+# april 22, 2025
+my mother
+# april 28, 2025
+sally:cherry
+mike:Vanilla
+emma:chocolate
