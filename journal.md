@@ -44,3 +44,9 @@ my mother
 sally:cherry
 mike:Vanilla
 emma:chocolate
+# may 19, 2025
+Yes because my birthday is in summer
+# may 5, 2025
+I think 100 men could beat a gorilla
+# may 12, 2025
+we shouldn't do dangeroud things like that
