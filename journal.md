@@ -50,3 +50,5 @@ Yes because my birthday is in summer
 I think 100 men could beat a gorilla
 # may 12, 2025
 we shouldn't do dangeroud things like that
+# september 22, 2025
+I think it's a good idea since people can get paid from doing normal jobs
