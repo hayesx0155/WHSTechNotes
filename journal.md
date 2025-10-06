@@ -54,3 +54,5 @@ we shouldn't do dangeroud things like that
 I think it's a good idea since people can get paid from doing normal jobs
 # September 30, 2025
 6 7 is a meme and has no clear meaning
+# October 6, 2025
+if I were in charge my AI policy would be to only use it for school approprite things
