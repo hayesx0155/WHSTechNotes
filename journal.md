@@ -66,3 +66,9 @@ marla sits in 61F for 3rd
 advanced weather radar
 # November 3, 2025
 immediate, severe impacts on the health and well-being of over 42 million Americans
+# November 10, 2025
+allowing for virtual connections through video calls and social media
+# November 17,2025
+yes
+# December 1, 2025
+Drone programmers write the software that controls drones, enabling functions like autonomous navigation, obstacle avoidance, and data collection
