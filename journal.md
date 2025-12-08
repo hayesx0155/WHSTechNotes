@@ -72,3 +72,5 @@ allowing for virtual connections through video calls and social media
 yes
 # December 1, 2025
 Drone programmers write the software that controls drones, enabling functions like autonomous navigation, obstacle avoidance, and data collection
+# December 8, 2025
+cause of flaws
