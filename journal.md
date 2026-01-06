@@ -76,3 +76,5 @@ Drone programmers write the software that controls drones, enabling functions li
 cause of flaws
 # December 15, 2025
 open presents
+# January 6, 2026
+i used tech to see the time till christmas
