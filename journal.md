@@ -78,3 +78,5 @@ cause of flaws
 open presents
 # January 6, 2026
 i used tech to see the time till christmas
+# January 12, 2025
+Autcraft was created by Stuart Duncan to solve the problem of bullying, harassment, and exclusion autistic children faced on mainstream Minecraft servers
