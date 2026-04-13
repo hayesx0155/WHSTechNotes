@@ -82,3 +82,9 @@ i used tech to see the time till christmas
 Autcraft was created by Stuart Duncan to solve the problem of bullying, harassment, and exclusion autistic children faced on mainstream Minecraft servers
 # January 20, 2026
 Technology can foster a fairer society by expanding access to education, creating economic opportunities, and enhancing governance and accountability
+# February 10, 2026
+I don't enjoy football
+# March 30, 2026
+Pressure
+# April 13, 2026
+Yes
